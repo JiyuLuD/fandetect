@@ -1,1 +1,1 @@
-I will upload Subsequently. Please stay tuned.
+It will upload subsequently. Please stay tuned.
